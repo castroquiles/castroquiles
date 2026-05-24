@@ -9,7 +9,7 @@ AI founder building EdTech, AI transformation, and drone logistics across the Am
 **[Emerging Rule / LevelShip](https://www.emergingrule.com)**
 Adaptive K-12 learning platform that uses ML to personalize instruction in real time.
 
-**[GENIA Americas](https://www.genialatinoamerica.com)**
+**[GENIA Americas](https://www.racefor.ai)**
 AI and digital transformation for governments, enterprises, and communities across the Western Hemisphere.
 
 **[HUBVERY](https://www.hubvery.com)**
