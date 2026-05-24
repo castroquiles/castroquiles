@@ -34,7 +34,7 @@ MBA · Deep Learning · Virtual Teaching · Blockchain
 
 ## Open to
 
-Strategic partnerships in K-12 EdTech and government AI. Pilot programs across Latin America and the Caribbean. Investor conversations around HUBVERY and LevelShip.
+Actively expanding across the AI Corridor of the Americas. Pilot programs in K-12 and government AI are open now. LevelShip and HUBVERY are raising. If any of this is your space, reach out directly at castroquiles.com
 
 ---
 
