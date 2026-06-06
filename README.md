@@ -15,8 +15,11 @@ AI and digital transformation for governments, enterprises, and communities acro
 **[HUBVERY](https://www.hubvery.com)**
 Autonomous drone and robotics infrastructure for last-mile delivery.
 
-**[AI Corridor of the Americas](https://www.castroquiles.com)**
+**[AI Corridor of the Americas](https://www.racefor.ai/aicorridor)**
 Cross-border AI ecosystem connecting innovators, institutions, and capital across the hemisphere.
+
+**[Dismantled: A Theory of Broken Mindsets—A Blueprint of Infinite Futures](https://dismantled.ai)**
+A call to reclaim the most powerful tool you possess—your mind.
 
 ---
 
